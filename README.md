@@ -67,4 +67,4 @@ P.S. Если что-то осталось неясным, расскажите 
 
 ---
 
-Команда IT Revolution.
+Команда PROCONNECT Digital Agency.
